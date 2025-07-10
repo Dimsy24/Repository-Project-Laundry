@@ -1,3 +1,5 @@
+List Nama dan kelompok Mahasiswa TI 2-1 Pagi 
+
 Kelompok 1
 Faiz Gunawan Yoandra(232350021)
 Roy Mahendra(232350007)
