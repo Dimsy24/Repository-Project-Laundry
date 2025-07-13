@@ -32,3 +32,5 @@ Muhammad Hafiz Riswandi (232350032)
 Ferdi Dwi Ilhamsyah (232350018)
 
 kelompok 7
+Nabila Zahro (232350001)
+
